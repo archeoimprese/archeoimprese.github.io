@@ -11,7 +11,7 @@ Archeoimprese ad oggi ha portato avanti numerose battaglie per gli archeologi ch
 
 **ISCRIVITI ORA**
 
-Ma senza l'aiuto di tutti la missione è destinata a fallire. Vieni a trovarci su Facebok per seguire l'associazione e mandarci un messaggio: 
+Ma senza l'aiuto di tutti la missione è destinata a fallire. Vieni a trovarci su Facebook per seguire l'associazione e mandarci un messaggio: 
 
 [Facebook](https://www.facebook.com/Archeoimprese/) 
 
