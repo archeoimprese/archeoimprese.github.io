@@ -12,8 +12,6 @@ Archeoimprese ad oggi ha portato avanti numerose battaglie per gli archeologi ch
 **ISCRIVITI ORA**
 
 Ma senza l'aiuto di tutti la missione è destinata a fallire. Vieni a trovarci su Facebook per seguire l'associazione e mandarci un messaggio: 
-**[Facebook](https://www.facebook.com/Archeoimprese/) 
-
-oppure contatta il nostro presidente su **(like presidente@archeoimprese.it)** per saperne di più sul nostro mondo e trasformare la tua professionalità in un cambiamento concreto.
+**[Facebook Page](https://www.facebook.com/Archeoimprese/)** oppure contatta il nostro presidente su **presidente@archeoimprese.it** per saperne di più sul nostro mondo e trasformare la tua professionalità in un cambiamento concreto.
 
 ![Foto di Gruppo](/foto_gruppo.jpg)
