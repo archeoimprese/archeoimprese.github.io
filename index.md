@@ -1,4 +1,4 @@
-![Image] (./banner.jpg)
+![Image] (banner.jpg)
 
 ### ASSOCIAZIONE ARCHEOIMPRESE 
 
