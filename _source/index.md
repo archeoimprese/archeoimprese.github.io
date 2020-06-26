@@ -7,4 +7,4 @@ Ad oggi Archeoimprese conta tra le proprie fila Archeologi con varie specializza
 
 Archeoimprese ad oggi ha portato avanti numerose battaglie per gli archeologi che operano ad altissimi livelli di professionalità e di imprenditoria aziendale, senza mai tirarsi indietro davanti alla situazione di forte abbandono del settore, per migliorare le condizioni di lavoro sul campo, la tutela dei lavoratori e il diritto ad un compenso equo in base alle competenze e agli investimenti fatti.
 
-Ma senza l'aiuto di tutti la missione è destinata a fallire. Contatta il nostro presidente su [Email - Iscrizione](presidente@archeoimprese.it) per saperne di più sul nostro mondo e trasformare la tua professionalità in un cambiamento concreto.
+Ma senza l'aiuto di tutti la missione è destinata a fallire. Vieni a trovarci su Facebok per seguire l'associazione e mandarci un messaggio: **[Facebook]**(https://www.facebook.com/Archeoimprese/) oppure contatta il nostro presidente su **[Email - Iscrizione](presidente@archeoimprese.it)** per saperne di più sul nostro mondo e trasformare la tua professionalità in un cambiamento concreto.
